@@ -1,1 +1,1 @@
-Idea taken from BroCode on YouTube
+Idea inspired by BroCode on YouTube
